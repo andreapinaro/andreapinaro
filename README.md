@@ -21,4 +21,4 @@
 ---
 
 > [!IMPORTANT]  
-> My inbox is always open, contact me by [LinkedIn](https://www.linkedin.com/in/andreapinarodriguez/) or by [email](mailto:andreapinaro@gmail.com)
+> My inbox is always open, contact me by [LinkedIn](https://www.linkedin.com/in/andreapinaro/) or by [email](mailto:andreapinaro@gmail.com)
